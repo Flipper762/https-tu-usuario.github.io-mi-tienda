@@ -1,1 +1,1 @@
-# https-tu-usuario.github.io-mi-tienda
+# https-tecno.loyia-mi-tienda
